@@ -8,7 +8,7 @@ Maybe some even smell... 👃🤢 Only kidding (sorta 😅)
 
 **See 👀 Tim OConnor: The Proof is in the Pudding 🍮🧾**
 
-He makes decision processes easy for you 👉  YES ✔️ or YEAH, WE'LL KEEP LOOKING ❌
+He makes the choice easy 👉  YES ✔️ or YEAH, WE'LL KEEP LOOKING ❌
 
 **Summer 2022 Self-Funded Internship by Global Career Accelator's (GCA).**
 
