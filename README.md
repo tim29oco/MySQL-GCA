@@ -1,6 +1,6 @@
 ***Tim OConnor: 8 MySQL Projects with the Click of a Button!***
 
-Tired with applicants providing zero proof of their skill proficiencies? 💢😠
+Tired of applicants providing zero proof of their skill proficiencies? 💢😠
 
 Numbed by "Beginner" "Intermediate" and "Advanced" skills? 😫💧
 
